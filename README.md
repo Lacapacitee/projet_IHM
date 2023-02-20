@@ -1,1 +1,6 @@
-# projet_IHM
+# Membres du groupe 
+
+1. OUEDRAOGO WENDTOIN ISSAKA 
+
+2. TRAORE JEAN KOASSI
+
